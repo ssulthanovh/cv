@@ -1,2 +1,0 @@
-# cv]
-salam aleykum dostlar
